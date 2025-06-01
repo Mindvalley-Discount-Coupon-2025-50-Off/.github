@@ -1,6 +1,6 @@
-# Mindvalley Discount Coupon 50% Off Legit - May 2025
+# Mindvalley Discount Coupon 50% Off Legit - June 2025
 
-I know you’ve been hunting for a **legit Mindvalley discount coupon code**—probably clicking through site after site hoping for something real, right? Well, good news: I’ve got you covered. Here are **two of the best Mindvalley offers** running *right now* for May 2025.
+I know you’ve been hunting for a **legit Mindvalley discount coupon code**—probably clicking through site after site hoping for something real, right? Well, good news: I’ve got you covered. Here are **two of the best Mindvalley offers** running *right now* for June 2025.
 
 [![Mindvalley Discount](https://buddyforhelp.com/wp-content/uploads/2025/05/mindvalley-discount.png)](https://bit.ly/3MFXXPu)
 
@@ -8,9 +8,9 @@ I know you’ve been hunting for a **legit Mindvalley discount coupon code**—p
 
 ## Mindvalley Discount Coupon
 
-**Latest Mindvalley Discount Codes & Coupons for May 2025:**
+**Latest Mindvalley Discount Codes & Coupons for June 2025:**
 
-For May, Mindvalley has rolled out two really solid deals. First up, you can lock in a **lifetime 50% off subscription** to what’s arguably the world’s best personal growth platform. Or, if you’re testing the waters, there’s a **$100 discount on monthly subscriptions** too.
+For June, Mindvalley has rolled out two really solid deals. First up, you can lock in a **lifetime 50% off subscription** to what’s arguably the world’s best personal growth platform. Or, if you’re testing the waters, there’s a **$100 discount on monthly subscriptions** too.
 
 - **50% off Mindvalley Membership – [Claim Now!](https://bit.ly/3MFXXPu)**  
 - **$100 Discount – [Claim Now!](https://bit.ly/3MFXXPu)**  
